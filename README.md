@@ -23,3 +23,9 @@ RedRedRed is a wild, experimental project featuring custom dimensions, biomes, a
 ## Fatal issue **(NOW FIXED)**
 Sadly, there is an issue.
 One random day in **THIS month** *(I do not know when)*, the RedRedRed workspace got corrupted while porting it from Minecraft "1.21.8" to Minecraft "26.1.2". It may take a while to restore the mod, so **PLEASE**. Wait. Update 1: It's been fixed!!!!!!!!!
+
+## Another Fatal issue **(NOW FIXED AGES AGO)**
+I lost my charger almost a month or more ago ):
+
+then got it back like last week or so!! (:
+The RedRedRed v1.0.16 Update is an update that has a name... It will be called... RedRedRed v1.0.16: The Continuation Update
