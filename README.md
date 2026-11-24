@@ -29,3 +29,6 @@ I lost my charger almost a month or more ago ):
 
 then got it back like last week or so!! (:
 The RedRedRed v1.0.16 Update is an update that has a name... It will be called... RedRedRed v1.0.16: The Continuation Update
+
+
+Who wants to see the mod reaching over 400 elements? Procedures, Blocks, items, Item Extensions, and so much more has caused this mod to expand so much to the point where since RedRedRed started, It is NOT a joke mod with 3 items. It's a fun made mod made to enjoy you! YAAAAAAAAAAAAAAAAAAAY
