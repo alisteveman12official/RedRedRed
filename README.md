@@ -27,7 +27,7 @@ One random day in **THIS month** *(I do not know when)*, the RedRedRed workspace
 ## Another Fatal issue **(NOW FIXED, THIS HAPPENED AROUND SEPTEMBER -> NOVEMBER 2026)**
 I lost my charger almost a month or more ago ):
 
-Then got it back like last week or so!! (:
+Then got it back (Wait, I meant BOUGHT A NEW ONE) like last week or so!! (:
 The RedRedRed v1.0.16 Update is an update that has a name... It will be called... RedRedRed v1.0.16: The Returned For Once Update (Yes, I did change its name)... I think I lost my charger a day right after v1.0.15 was released... Well now you know!
 
 
