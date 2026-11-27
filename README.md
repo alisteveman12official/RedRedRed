@@ -24,11 +24,11 @@ RedRedRed is a wild, experimental project featuring custom dimensions, biomes, a
 Sadly, there is an issue.
 One random day in **THIS month** *(I do not know when)*, the RedRedRed workspace got corrupted while porting it from Minecraft "1.21.8" to Minecraft "26.1.2". It may take a while to restore the mod, so **PLEASE**. Wait. Update 1: It's been fixed!!!!!!!!!
 
-## Another Fatal issue **(NOW FIXED AGES AGO)**
+## Another Fatal issue **(NOW FIXED, THIS HAPPENED AROUND SEPTEMBER -> NOVEMBER 2026)**
 I lost my charger almost a month or more ago ):
 
 then got it back like last week or so!! (:
-The RedRedRed v1.0.16 Update is an update that has a name... It will be called... RedRedRed v1.0.16: The Continuation Update
+The RedRedRed v1.0.16 Update is an update that has a name... It will be called... RedRedRed v1.0.16: The Returned For Once Update (Yes I did change it's name)
 
 
 Who wants to see the mod reaching over 400 elements? Procedures, Blocks, items, Item Extensions, and so much more has caused this mod to expand so much to the point where since RedRedRed started, **It is NOT a joke mod with 3 items.** It's a fun made mod made to... *enjoy you??* **YAAAAAAIAmHidingInThisTextShhhAAAAAAAAAAAAY**... Who was that?
